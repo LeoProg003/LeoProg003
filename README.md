@@ -5,4 +5,3 @@
 - 📫 Contate-me no E-mail: leonardo_sleao@Outlook.com
 - 😄 Pronouns: Ele/Dele
 
-
